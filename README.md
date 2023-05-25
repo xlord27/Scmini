@@ -1,4 +1,5 @@
-# <b> PREMIUM FREE NO IP
+# <b> FREE BY XLORD
+
 
 <h2 align="center">
 Auto Script Install All VPN XLORD vps premi
